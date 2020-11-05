@@ -8,5 +8,5 @@
   This is a warehouse ,for upgrading writing ,which inclouds the road of 
 progress author 、action plan、write material and some works.Let’s learn 
 together and upgrade together.Your valuable suggestions are welcome.
-Why not discuss with me if you have some creazy idea？
+Why not discuss with me if you have some creazy idea about anything？
   Email：itweixiao@sina.com
