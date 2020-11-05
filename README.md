@@ -5,3 +5,8 @@
 也希望大家一起学习，一起进步，感谢大家的宝贵意见。
 如有好的想法或合作意向可以联系:itweixiao@sina.com
   
+  This is a warehouse ,for upgrading writing ,which inclouds the road of 
+progress author 、action plan、write material and some works.Let’s learn 
+together and upgrade together.Your valuable suggestions are welcome.
+Why not discuss with me if you have some creazy idea？
+  Email：itweixiao@sina.com
